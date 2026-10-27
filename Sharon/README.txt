@@ -1,0 +1,1 @@
+Guarda aquí las fotos de Sharon: 1.jpg (para Fase 2) y 2.jpg (para Fase 8)
